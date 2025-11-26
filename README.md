@@ -100,13 +100,6 @@ Here’s what I love working with:
 
 ---
 
-## 📫 Let’s Connect
-
-- 📧 [tayyabsarfraz1998@gmail.com](mailto:tayyabsarfraz1998@gmail.com)  
-- 💼 [LinkedIn](https://linkedin.com/in/tayyabsarfraz)  
-- 💻 [GitHub](https://github.com/tayyabsarfraz)
-
----
 
 ## ⚡ Fun Fact
 
